@@ -2,7 +2,7 @@
 
 ㅤㅤㅤ
 
-![](https://komarev.com/ghpvc/?username=ywubism&style=plastic&color=blueviolet&label=wuber&base=10000000000&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=ywubism&style=plastic&color=blueviolet&label=wuber&base=10000000&abbreviated=true)
 
 [straw](https://sevhaine.straw.page/)ㅤ᯽ㅤ[tree](https://colormytree.me/2025/01JENKJN8X2PRGGE6EZ3PTNJQX)󠀠󠀠󠀠󠀠ㅤ᯽ㅤ[ata](https://metroooooo.atabook.org/)
 
