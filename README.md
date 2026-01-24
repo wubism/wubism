@@ -2,7 +2,7 @@
 
 ㅤㅤㅤ
 
-<sup><sub>[straw](https://sevhaine.straw.page/)ㅤ᯽ㅤ[ata](https://metroooooo.atabook.org/)</sub></sup>
+<sup>[straw](https://sevhaine.straw.page/)ㅤ᯽ㅤ[ata](https://metroooooo.atabook.org/)</sup>
 <br>
 <br>
 <br>
