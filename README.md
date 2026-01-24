@@ -6,7 +6,7 @@
 <br>
 <br>
 <br>
-<img width="2048" height="2048" alt="Untitled97_20260124192941" src="https://github.com/user-attachments/assets/d090097d-df3f-4539-a9bb-7b05186107f0" />
+![IMG_9060](https://github.com/user-attachments/assets/d1a2d76f-8b7a-45a8-a387-15722c6c32d1)
 <br>
 <br>
 ![](https://komarev.com/ghpvc/?username=ywubism&style=plastic&color=blueviolet&label=wuber&base=10000000&abbreviated=true)
