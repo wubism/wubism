@@ -2,7 +2,7 @@
 
 ㅤㅤㅤ
 
-<sup><sub>[straw](https://sevhaine.straw.page/)ㅤ᯽ㅤ[tree](https://colormytree.me/2025/01JENKJN8X2PRGGE6EZ3PTNJQX)󠀠󠀠󠀠󠀠ㅤ᯽ㅤ[ata](https://metroooooo.atabook.org/)</sub></sup>
+<sup><sub>[straw](https://sevhaine.straw.page/)ㅤ᯽ㅤ[ata](https://metroooooo.atabook.org/)</sub></sup>
 <br>
 <br>
 <br>
