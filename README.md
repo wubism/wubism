@@ -5,4 +5,5 @@
 <sup>[rentry](https://rentry.co/voidtheory)ㅤ᯽ㅤ[ata](https://metroooooo.atabook.org/)</sup>
 <br>
 <br>
-![IMG_0726](https://github.com/user-attachments/assets/98d4300d-70e5-45e9-9566-38c6303dc5e0)
+<img width="1199" height="1130" alt="Untitled98_20260129073237" src="https://github.com/user-attachments/assets/44e3cd9e-e2e5-4543-8fc3-b03bfb6ff7ee" />
+
