@@ -2,7 +2,7 @@
 
 ㅤㅤㅤ
 
-ঌㅤ[MY VERY COOL RENTRY](https://rentry.co/voidtheory)ㅤঌ
+ঌㅤ[MY VERY COOL RENTRY](https://rentry.co/voidtheory)ㅤ!
 <br>
 <img width="450" height="470" alt="Untitled98_20260129073237" src="https://files.catbox.moe/3ek0ij.webp" />
 <br>
