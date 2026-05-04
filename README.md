@@ -1,6 +1,8 @@
 <div align="center">
 <img align="center" width="631" height="409" alt="Untitled131_20260504223447" src="https://github.com/user-attachments/assets/b4c4a165-ea71-4e59-bdf8-c4eb59fe9a0a"
-/> <sup>  　　　　　　hii~ Its ya boy Sevhaine! thank u for the 245 gifted subs :o </sup>
+<br />
+<br />
+<sup>  　　　　　　Hii~ Its ya boy Sevhaine! thank u for the 245 gifted subs :o </sup>
 <br />
  <sup>  　　　　　　no links because im MYSTERIOUS like dat </sup>
 <br />
