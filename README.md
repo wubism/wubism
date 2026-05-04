@@ -4,7 +4,7 @@
  <sup>  　　　　　　no links because im MYSTERIOUS like dat </sup>
 <br />
 <br />
-<sup> 　　　　Man.  what else do i put? i donno </sup>
+<sup> 　　　　OFFLINE DEMON x_x sorry friends </sup>
 <br />
 <br />
 <br />
