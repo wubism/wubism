@@ -1,4 +1,4 @@
-<img align="left" width="342" height="269" alt="Untitled127_20260504202830" src="https://github.com/user-attachments/assets/30445298-e66c-44a9-9e89-87352c016e3a"
+<img align="left" width="465" height="320" alt="Untitled130_20260504221905" src="https://github.com/user-attachments/assets/82f87a6c-0cf6-467f-b50c-25161d2d20d9"
 /> <sup>  　　　　　　hii~ Its ya boy Sevhaine! thank u for the 245 gifted subs :o </sup>
 <br />
  <sup>  　　　　　　no links because im MYSTERIOUS like dat </sup>
