@@ -1,5 +1,5 @@
 <div align="center">
-<img align="center" width="631" height="409" alt="Untitled131_20260504223447" src="https://github.com/user-attachments/assets/b4c4a165-ea71-4e59-bdf8-c4eb59fe9a0a"
+<img width="761" height="539" alt="Untitled131_20260504223447" src="https://github.com/user-attachments/assets/8e48fa7f-f012-4d2f-a9eb-d161ec0bd5d7" />
 <br />
 <br />
 <sup>  　　　　　　Hii~ Its ya boy Sevhaine! thank u for the 245 gifted subs :o </sup>
