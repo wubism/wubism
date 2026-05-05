@@ -10,7 +10,7 @@ offline demon x_x sorry friends
  <sup>  　　　　　　no links because im MYSTERIOUS like dat </sup>
 <br />
 <br />
-<sup> 　　　　art cr @asktaiduki__ & @coconutdumpster on twt </sup>
+<sup> 　　　　art cr @asktaiduki__ & @Souka_1227 on twt </sup>
 <br />
 <br />
 <br />
