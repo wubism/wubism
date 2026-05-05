@@ -14,7 +14,7 @@ offline demon x_x sorry friends
 <br />
 <br />
 <br />
-<br /><br /> ${\textsf{\color{#8625C2} 　　　　UU FANS INT !!!!!!!!!!!!!! }}$ </sup>
+<br /><br /> ${\textsf{\color{#8F00D2} 　　　　UU FANS INT !!!!!!!!!!!!!! }}$ </sup>
 <img width="20" height="20" alt="9f7bd872_original" src="https://github.com/user-attachments/assets/59379922-a134-4b87-8520-de09d6594ad4" />
 <br />
 <br />
