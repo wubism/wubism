@@ -1,8 +1,9 @@
 offline demon x_x sorry friends
 <br>
 <br>
-<img align="left" width="2048" height="2048" alt="Untitled133_20260505115132" src="https://github.com/user-attachments/assets/07d2bb83-5d97-4eea-8b73-846591c0ebe6" />
-/> <sup>  　　　　　　hii~ Its ya boy Sevhaine! </sup>
+<img align="left" width="539" height="539" alt="Untitled133_20260505115132" src="https://github.com/user-attachments/assets/9d5ea3f5-8b39-4b58-8761-ffb6dee5a4a3" />
+
+ <sup>  　　　　　　hii~ Its ya boy Sevhaine! </sup>
 <br />
 <sup>  　　　　　　thx for the 245 gifted subs :o </sup>
 <br />
