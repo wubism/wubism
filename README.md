@@ -2,7 +2,7 @@ offline demon x_x sorry friends
 <br>
 <br>
 <img align="left" width="539" height="539" alt="Untitled133_20260505112655" src="https://github.com/user-attachments/assets/ad370e66-ffd9-48d7-9cfc-f52f75327b26"
-/> <sup>  　　　　　　hii~ Its ya boy Sevhaine! thank u for the 245 gifted subs :o </sup>
+/> <sup>  　　　　　　hii~ Its ya boy Sevhaine! thx for the 245 gifted subs :o </sup>
 <br />
  <sup>  　　　　　　no links because im MYSTERIOUS like dat </sup>
 <br />
@@ -11,7 +11,7 @@ offline demon x_x sorry friends
 <br />
 <br />
 <br />
-<br /><br /> ${\textsf{\color{#4505BD} 　　　　Jumpah who !!!!!!!!!!!!!! }}$ </sup>
+<br /><br /> ${\textsf{\color{#8625C2} 　　　　UU FANS INT !!!!!!!!!!!!!! }}$ </sup>
 <img width="20" height="20" alt="9f7bd872_original" src="https://github.com/user-attachments/assets/59379922-a134-4b87-8520-de09d6594ad4" />
 <br />
 <br />
