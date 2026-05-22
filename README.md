@@ -2,4 +2,4 @@
 <br />
 <br />
 <br />
-　　offline mode demon x_x　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　<sup> <sup> pfp cr: @coconutdumpster on twt <sup> <sup/>
+　　offline mode demon x_x　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　<sup> <sup> pfp cr: @grilledmaitake on twt <sup> <sup/>
