@@ -2,4 +2,4 @@
 <br />
 <br />
 <br />
-　　offline mode demon x_x　　c+h enc!!　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　<sup> <sup> pfp cr: @grilledmaitake on twt <sup> <sup/>
+　　offline mode demon x_x　　c+h enc!!　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　<sup> <sup> pfp cr: @biogrids44 on twt <sup> <sup/>
