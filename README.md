@@ -2,4 +2,4 @@
 <br />
 <br />
 <br />
-　　links very very soon Ok x_x　　c+h enc!!　　　　　　　　　　　　　　　　　　　　　　　　<sup> <sup> pfp cr: @poisonouspepper on twt <sup> <sup/>
+　　links very very soon Ok x_x　　c+h enc!!　　　　　　　　　　　　　　　　　　　　　　　　　　　　　<sup> <sup> pfp cr: @poisonouspepper on twt <sup> <sup/>
