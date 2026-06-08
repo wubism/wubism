@@ -2,4 +2,4 @@
 <br />
 <br />
 <br />
-　　read my <a href="https://rentry.co/glory2celestia">info</a> ok!!!!!　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　<sup> <sup> pfp cr: @poisonouspepper on twt <sup> <sup/>
+　　read my <a href="https://rentry.co/glory2celestia">info</a> ok!!!!!　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　<sup> <sup> pfp cr: @poisonouspepper on twt <sup> <sup/>
