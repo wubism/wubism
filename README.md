@@ -1,3 +1,3 @@
-<img width="539" height="539" alt="IMG_7020" src="https://github.com/user-attachments/assets/d97d3fab-6553-45ac-a5c0-b9ffbeeaef5f" />
+<img width="324" height="398" alt="hiktich-iwri" src="https://github.com/user-attachments/assets/60c61b58-a0cb-47bd-be96-99eec4ad450b" />
 
-<sup> pfp cr poisonouspepper </sup>
+art cr poisonouspepper
