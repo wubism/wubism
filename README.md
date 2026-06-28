@@ -1,3 +1,3 @@
-<img width="324" height="398" alt="hiktich-iwri" src="https://github.com/user-attachments/assets/60c61b58-a0cb-47bd-be96-99eec4ad450b" />
+<img width="682" height="586" alt="Untitled158_20260628073658" src="https://github.com/user-attachments/assets/fdb30bf2-f2dc-49c4-9d48-5e9af95c01f0" />
 
-art cr poisonouspepper
+art cr @poisonouspepper @coconutdumpster
