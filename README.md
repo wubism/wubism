@@ -16,8 +16,6 @@ go crazy idk
     <br>
          <br> 
              <br>
-                  <br>
-                      <br>
 <div align="center">
    
 ${\textsf{\color{#BDB9BF} why dont I say it then...}}$
