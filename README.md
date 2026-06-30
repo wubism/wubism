@@ -9,7 +9,7 @@ go crazy idk
 
 <div align="center">
 
-<img src="https://komarev.com/ghpvc/?username=wubism&style=flat-square&color=5D409F&label=what+do+i+put+here?" alt="profile view counter">
+<img src="https://komarev.com/ghpvc/?username=wubism&style=flat-square&color=5D409F&label=hello+wubers" alt="profile view counter">
 <br>
 <img src="https://file.garden/aYcjB7qxDC3tLALZ/wemmbu/partykilling" width="300" align="left">
 <br>
