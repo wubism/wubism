@@ -20,10 +20,15 @@ go crazy idk
                       <br>
 <div align="center">
    
-${\textsf{\color{#BDB9BF} why dont I say it then..}}$
-
+${\textsf{\color{#BDB9BF} why dont I say it then...}}$
+<br>
+<br>
+<br>
    [新book](https://wubism.atabook.org/)  ‎ ‎   [rentry](https://rentry.co/exploitarc)  ‎ ‎   [strawpage](https://patchbreakers.straw.page/)
 
    ${\textsf{\color{#E5F0CE} c+h  ‎ ‎   and chalant}}$
+<br>
+<br>
+<br>
 
    ${\textsf{\color{#5D409F} ...i want you all the time}}$
