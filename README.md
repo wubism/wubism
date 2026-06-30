@@ -24,6 +24,6 @@ ${\textsf{\color{#BDB9BF} why dont I say it then..}}$
 
    [新book](.)  ‎ ‎   [rentry]()  ‎ ‎   [strawpage]()
 
-   ${\textsf{\color{#E5F0CE} txt}}$
+   ${\textsf{\color{#E5F0CE} c+h  ‎ ‎   and chalant}}$
 
    ${\textsf{\color{#5D409F} ...i want you all the time}}$
