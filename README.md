@@ -22,7 +22,7 @@ go crazy idk
    
 ${\textsf{\color{#BDB9BF} why dont I say it then..}}$
 
-   [新book](.)  ‎ ‎   [rentry]()  ‎ ‎   [strawpage]()
+   [新book](https://wubism.atabook.org/)  ‎ ‎   [rentry](https://rentry.co/exploitarc)  ‎ ‎   [strawpage](https://patchbreakers.straw.page/)
 
    ${\textsf{\color{#E5F0CE} c+h  ‎ ‎   and chalant}}$
 
