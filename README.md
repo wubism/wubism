@@ -20,10 +20,10 @@ go crazy idk
                       <br>
 <div align="center">
    
-${\textsf{\color{#BDB9BF} sev idk what 2 put here}}$ ${\textsf{\color{#5D409F} ominous purple text..}}$ ${\textsf{\color{#E5F0CE} txt}}$
+${\textsf{\color{#BDB9BF} why dont I say it then..}}$
 
-   [link](.) here ur link << put whatever 
+   [新book](.)  ‎ ‎   [rentry]()  ‎ ‎   [strawpage]()
 
-   fei outt brotha!!!
+   ${\textsf{\color{#E5F0CE} txt}}$
 
-   ignore this. this is a gift for a friend
+   ${\textsf{\color{#5D409F} ...i want you all the time}}$
