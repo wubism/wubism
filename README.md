@@ -1,4 +1,4 @@
-```<!--
+<!--
 
 made by 100bottlesofglue on github
 im scratching my butt as i write this
@@ -27,4 +27,3 @@ ${\textsf{\color{#BDB9BF} sev idk what 2 put here}}$ ${\textsf{\color{#5D409F} o
    fei outt brotha!!!
 
    ignore this. this is a gift for a friend
-```
