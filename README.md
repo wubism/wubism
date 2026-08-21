@@ -23,7 +23,7 @@ ${\textsf{\color{#BDB9BF} why dont I say it then...}}$
 <br>
 <br>
 <br>
-   [新book](https://wubism.atabook.org/)  ‎ ‎   [rentry](https://rentry.co/exploitarc)  ‎ ‎   [strawpage](https://patchbreakers.straw.page/)
+   [新book](https://wubism.atabook.org/)  ‎ ‎   [rentry](https://rentry.co/voidmoon)  ‎ ‎   [strawpage](https://patchbreakers.straw.page/)
 
    ${\textsf{\color{#E5F0CE} c+h  ‎ ‎   and chalant}}$
 <br>
