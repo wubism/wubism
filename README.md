@@ -25,7 +25,7 @@ ${\textsf{\color{#BDB9BF} why dont I say it then...}}$
 <br>
    [新book](https://wubism.atabook.org/)  ‎ ‎   [rentry](https://rentry.co/voidmoon)  ‎ ‎   [strawpage](https://patchbreakers.straw.page/)
 
-   ${\textsf{\color{#E5F0CE} c+h  ‎ ‎   and chalant}}$
+   ${\textsf{\color{#E5F0CE} if u do pony comms HMU !!!!!!!!!!!}}$
 <br>
 <br>
 <br>
