@@ -7,8 +7,8 @@ bello
 
 <div align="center">
   
-O_O
-<br>
+<details> <summary> O_< </summary>   friends
+</details><br>
 <br>
 <br>
 <br>
