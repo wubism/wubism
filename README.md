@@ -12,7 +12,6 @@ O_O
 <br>
 <br>
 <br>
-<br>
 <img width="500" alt="Untitled236_20261017210721" src="https://github.com/user-attachments/assets/75b5f213-386c-472b-bdc6-fdb766b05abf" />
 <br>
 <br>
