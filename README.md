@@ -1,33 +1,10 @@
 <!--
 
-made by 100bottlesofglue on github
-im scratching my butt as i write this
-go crazy idk
+bello
 
 -->
 
 
 <div align="center">
 
-<img src="https://komarev.com/ghpvc/?username=wubism&style=flat-square&color=5D409F&label=hello+wubers" alt="profile view counter">
-<br>
-<img src="https://file.garden/aYcjB7qxDC3tLALZ/wemmbu/partykilling" width="300" align="left">
-<br>
-    <br>
-         <br> 
-             <br>
-                  <br>
-<div align="center">
-   
-${\textsf{\color{#BDB9BF} why dont I say it then...}}$
-<br>
-<br>
-<br>
-   [新book](https://wubism.atabook.org/)  ‎ ‎   [rentry](https://rentry.co/voidmoon)  ‎ ‎   [strawpage](https://patchbreakers.straw.page/)
-
-   ${\textsf{\color{#E5F0CE} c+h unless dni !!!!!!!}}$
-<br>
-<br>
-<br>
-
-   ${\textsf{\color{#5D409F} ...i want you all the time}}$
+<img width="500" alt="IMG_1700" src="https://github.com/user-attachments/assets/17aa7453-7e15-44d7-9c76-1cddb865e1a0" />
