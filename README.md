@@ -13,7 +13,7 @@ O_O
 <br>
 <br>
 <br>
-<img width="500" alt="Untitled235_20261017210515" src="https://github.com/user-attachments/assets/6a82241f-4864-4d27-aba5-7251c65b00ba" />
+<img width="500" alt="Untitled236_20261017210721" src="https://github.com/user-attachments/assets/75b5f213-386c-472b-bdc6-fdb766b05abf" />
 <br>
 <br>
 ataㅤㅤㅤstrawㅤㅤㅤrentry
