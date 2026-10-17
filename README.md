@@ -7,7 +7,7 @@ bello
 
 <div align="center">
   
-<details> <summary> O_< </summary>   friends
+<details> <summary> O_< </summary>   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ@Orcapaint @100bottlesofglue @sourweevil ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ@deepaffection @Taxduo4ever @WHATSUR-ALIBI
 </details><br>
 <br>
 <br>
