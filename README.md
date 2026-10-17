@@ -13,4 +13,4 @@ ataㅤㅤㅤstrawㅤㅤㅤrentryㅤㅤ👍
 <br>
 <br>
 <br>
-<img width="500" alt="IMG_1700" src="https://github.com/user-attachments/assets/17aa7453-7e15-44d7-9c76-1cddb865e1a0" />
+<img width="500" alt="Untitled235_20261017210515" src="https://github.com/user-attachments/assets/6a82241f-4864-4d27-aba5-7251c65b00ba" />
