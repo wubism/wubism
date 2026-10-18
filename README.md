@@ -7,7 +7,7 @@ bello
 
 <div align="center">
   
-<details> <summary> O_< </summary>   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ@Orcapaint @100bottlesofglue @sourweevil ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ@deepaffection @Taxduo4ever @WHATSUR-ALIBI
+<details> <summary> O_< </summary> hi to my friends toki fei cotton shig vortex cosmic :D
 </details><br>
 <br>
 <br>
