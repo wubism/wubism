@@ -7,7 +7,11 @@ bello
 
 <div align="center">
   
-<details> <summary> O_< </summary> hi to my friends toki fei cotton shig vortex cosmic :D
+<details> <summary> O_< </summary> HELLO
+  <br>
+  green name = FRIENDS
+  <br>
+  sign my ata = I LOVE YOU
 </details><br>
 <br>
 <br>
