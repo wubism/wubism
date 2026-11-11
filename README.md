@@ -17,4 +17,4 @@ bello
 <br>
 <br>
   
-[新book](https://wubism.atabook.org/)ㅤㅤㅤ [straw](https://patchbreakers.straw.page/)ㅤㅤㅤ [rentry](https://rentry.co/ashswaggs)
+[新book](https://wubism.atabook.org/)ㅤㅤㅤ [straw](https://patchbreakers.straw.page/)ㅤㅤㅤ [rentry](https://rentry.co/firestars)
