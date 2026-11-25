@@ -9,6 +9,7 @@ bello
   
 <details> <summary> O_< </summary> 
   pfp cr @Foolingrat74 on twitter
+  $\color{#712384}\textsf{text}$
   <br>
   art cr @ydmnn on youtube
 </details><br>
