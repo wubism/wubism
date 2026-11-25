@@ -8,10 +8,9 @@ bello
 <div align="center">
   
 <details> <summary> O_< </summary> 
-  pfp cr @Foolingrat74 on twitter
-  $\color{#712384}\textsf{text}$
+  $\color{#ffffff}\textsf{pfp cr @Foolingrat74 on twitter}$
   <br>
-  art cr @ydmnn on youtube
+  $\color{#ffffff}\textsf{art cr @ydmnn on youtube}$
 </details><br>
 <br>
 <img width="500" alt="6E225A3F-CF43-4880-A971-E5525A8FE64E" src="https://github.com/user-attachments/assets/497f90bd-5083-451f-886d-7178da7e50b8" />
